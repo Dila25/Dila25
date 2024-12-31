@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **web development**
 
-- 📫 How to reach me **ngdilshan2002@gmail.com**
+- 📫 How to reach me **mrdila0250@gmail.com**
 <br>
 <h3 align="left">Connect with me:</h3>
 <p align="left">
